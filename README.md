@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently attending an internship at Zibtek.
+I am currently attending an internship at Zibtek
 
 
 ## 🌐 Socials:
